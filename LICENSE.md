@@ -1,4 +1,4 @@
-# 
+# premium Bitdefender 全方位安全 PC版 插件 是最佳 Bitdefender 全方位安全 PC版 插件，集成 防火墙 和 漏洞扫描。安全、可靠、优化，性能最大化。
 
 
 
